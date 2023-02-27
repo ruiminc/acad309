@@ -1,0 +1,20 @@
+<img src="Totoro.jpeg" alt=Totoro width="350"/>
+
+<Art File 2\>
+
+Representation
+-   What does the selected image represent to you? (2 pts)
+-   How does it related to a major theme or idea of the film (2 pts)
+	- The selected image presents a scene where the two smaller Totoro travel through a dense bush. There is a relatively narrow passageway in the middle of the bush, where the two Totoro come from. One thing worth noting is that the passage in the center has a significant depth of field. As depth-of-field is utilized correctly, it helps the viewer to focus on the main body depicted in the image, and in the meantime, it creates a natural and beautiful bokeh background of the image. The entrance of this place is purposely hidden behind the bush, and the two Totoro seems chilling on their way home.
+	- All the techniques discussed above serve one central notion of the film: this place is the boundary between the "real world" and the "dream world." The fact that the background is blurred due to the depth-of-field and that the entrance is hidden from the viewer, all suggests that from here on, this place marks the entrance to the "spiritual world."
+	- It is also worth noting that this image is overall bright and highly saturated in its color profile. On the contrary, most scenes where Totoro appears are usually darker (either at night or in heavy rain). This also translates to another ideology of Miyazaki: he does not think that *Kami* should be in light (which is good) but not darkness (which is dark). Throughout the movie, Totoro, Catbus, and those soot spirit are indiscriminate against light/dark and shows a pleasant duality of both.
+
+Evocation/Animation
+-   What feelings, emotions or memories are evoked by the image? (2 pts)
+-   How do those responses relate to a major theme or idea of the film? (2 pts)
+	- I found this resonates with my emotions the most because this image evokes my feeling of the transitional stages between reality and dream. The "dream" here includes but is also much more than the dreams during sleep. This is a collection of all fantasies, memories, happiness and sadness, pain, and so much more feelings together. I feel like I have been more sensitive to these thoughts and feelings at a very young age. By then I had all the imagination about the world. This picture gives me a glimpse into that world that I could seldom recall. The passageway in the bush is narrow, and I can feel myself squeezing through it into that long-gone fantasy world. I believe this is what "nostalgia" feels like for me.
+	- And here is the part where the film touches on the idea of reality and dreams. Obviously, what Mei and Sutsuki have seen and experienced is not "real." They have seen the seeds grow into giant trees overnight, and disappear the next morning. But also, Sutsuki found her sister, and together they delivered the acorn through some mysterious force, which is the Catbus in her point of view. The point is not that either Totoro or any other spirits/livings are real, but this journey's implications for the two girls.
+
+Evaluation
+-   How well does this image convey the overall message?  Is it effective and why or why not? (2 pts)
+	- I particularly feel that I should talk about my overall feeling about *My Neighbor Totoro* as a whole. *Totoro*, amongst the three Miyazaki anime films we have watched so far (the other two being *Nausicaa* and *Spirited Away*), resonates with me the most. Although many commenters have said that *Totoro* is more than merely creating a "nostalgia evocation of Japanese rural life" (Phillip), and even Miyazaki himself has emphasized that "*Totoro* is not made a nostalgia place,"; still, I found a strong sense of nostalgia in this film. This is probably due to the nature of the story of *Totoro*, where the main storyline is relatively straightforward forward and clear-cut, which leaves a lot of room to build up the dreaming world of Totoro and let the audience emerge fully into the story. For me, this image is very effective in conveying the overall message.
