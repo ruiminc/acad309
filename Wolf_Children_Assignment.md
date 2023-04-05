@@ -1,0 +1,20 @@
+<img src="Wolf_Children.jpeg" alt=Wolf_Children height="200"/>
+
+\<Art File 10\>
+
+Representation
+-   What does the selected image represent to you? (2 pts)
+-   How does it related to a major theme or idea of the film (2 pts)
+	- The image depicts Hana, the mother, holding her two children in her arms. She is looking forward with a positive and confident smile. The two children display their duality of being both human and wolves by maintaining their human forms but also showing their wolf ears. Neither of the two children is facing directly towards the camera but only showing the side of their faces. Uncertainties and doubtfulness can be found in their eyes. Especially for Yuki, who is cuddling in her mother's arms. The family stands against a beautiful bright background: the sky is blue, and the mountains are green.
+	- Overall, this image tries to create a positive atmosphere. Although the wolf children are uncertain of their future, Hana is ready to accept the challenges she is going to face in the future. The entire film is based on these three characters, which correspond to three main storylines: how the mother overcame the challenges when trying to raise the two special children; the struggles of the kids in finding their identity, and how they would fit into this world.
+
+Evocation/Animation
+-   What feelings, emotions or memories are evoked by the image? (2 pts)
+-   How do those responses relate to a major theme or idea of the film? (2 pts)
+	- One interesting thing about this poster is that Yuki is not portrayed as an energetic/outgoing character as in the film. The two children had very distinct personalities: Yuki was always curious about the surrounding world, loved to explore, and meet new people. On the other hand, Ame was much more introverted, cautious when making choices, and kept much of his emotions and feelings to himself. Andrea Germer argued that "Throughout the course of the story, however, the two switch places as the girl makes a great effort to blend into human society, while the boy actively withdraws from it." However, I would disagree with the conclusion that they have switched their roles, but it is exactly their childhood behavior that inevitably led them to their respective futures.
+	- One of the ideas discussed in the film was that people must have some connection to other people. The mother retreated from cities, hoping she could raise the wolf children undisturbed by humans. But soon, she realized she still needed help from the surrounding people to teach her skills to survive in the countryside. In the process, she found out that with the correct approach, it is still possible for wolf children to live in human society.
+	- This is the same case for the two children. The moment Yuki overheard about going to elementary school, she insisted on going. She wanted to meet new people and make new friends, which is essential for her to adapt to the human world. However, for Ame, whose emotions are much more subtle, he found it much easier to "communicate" with nature. Forcing him into the human world will eventually fail.
+
+Evaluation
+-   How well does this image convey the overall message?  Is it effective and why or why not? (2 pts)
+	- The movie covers a very wide range of topics that is almost impossible to include them all within a single image. In general, the first part of the movie talks about how the mother sacrifices her life for the 'family state' (kazoku kokka). The mother is always laughing (having a positive mindset), which is clearly reflected in the image. In the second part, the movie focused more on how the two children formed their identities and chose different paths. Hosada said in his interview that "I wanted to make this film about growth and change in these people, whether it’s a child growing up to realize what they want and what they want to become." The children's uncertainty, and the fact that they are held on the left and right sides of the image, successfully convey the message.
